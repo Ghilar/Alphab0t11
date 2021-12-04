@@ -2,5 +2,5 @@
 Support channel ZEEONE OFC yah
 
 
-Yang jual sc ini anak haram bajingan
+Yang jual sc ini anak haram bajingan jancok
 */
